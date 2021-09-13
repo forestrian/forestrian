@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @forestrian
+- 👀 I’m interested in adventure and technology
+- 🌱 I’m currently learning artificial intelligence for startup at Orbit Future Academy in Kampus Merdeka
+- 📫 find me on instagram.com/ianchairawan
